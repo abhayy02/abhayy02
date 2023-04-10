@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abhayy02
-- 👀 I’m interested in software development and gaming
+- 👀 I’m interested in ,cybersecurity,blockchain,software development and gaming
 - 🌱 I’m currently learning nothing, looking forward to learn something XD
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
